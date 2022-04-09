@@ -1,1 +1,1 @@
-starting c exercice 
+starting c exercice oh yes 
